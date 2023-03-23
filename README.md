@@ -12,5 +12,7 @@ https://user-images.githubusercontent.com/83244962/227201447-bb30859e-5d7a-4565-
 https://user-images.githubusercontent.com/83244962/227201581-4c62771b-97da-4de5-9349-cb9a5ef53107.mov
 
 # Suppression des ajouts favoris
-https://user-images.githubusercontent.com/83244962/227201636-8f0eeb14-8fd1-4f1b-821c-dcd2052c159d.mov
+https://user-images.githubusercontent.com/83244962/227202964-78694873-090f-4a9a-aae0-2f37483e38de.mov
+
+
 
